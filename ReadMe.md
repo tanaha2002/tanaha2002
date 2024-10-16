@@ -3,6 +3,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 AI Engineer & System Administrator
 ----------------------------------
+My resumé [https://tanaha2002.github.io/resume_webpage/]
 
 Discipline is a virtue I deeply value—one I continue to strive for, recognizing its fundamental importance to success.
 
