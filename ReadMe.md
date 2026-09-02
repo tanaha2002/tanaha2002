@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 AI Engineer & System Administrator
 ----------------------------------
 
-Discipline is a virtue I deeply value—one I continue to strive for, recognizing its fundamental importance to success.
+Discipline is a virtue I deeply value, one I continue to strive for, recognizing its fundamental importance to success.
 
 * 🌍  I'm based in Vietnam, Ho Chi Minh City
 * ✉️  You can contact me at [julowin2002@gmail.com](mailto:julowin2002@gmail.com)
